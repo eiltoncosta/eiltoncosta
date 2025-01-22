@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Eilton Costa 😁
+## Bem-vindo(a) ao perfil do José Eilton 😁
 
  <div>
    <a href="https://github.com/eiltoncosta">
